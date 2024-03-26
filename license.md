@@ -1,0 +1,1 @@
+We reserve the right to modify the stuff stored in this repository as we see fit. You are allowed to use the stuff in this reposritory as long as you do not claim it as your own intellectual property.
